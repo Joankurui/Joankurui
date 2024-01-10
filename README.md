@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development 
 - 🌱 I do code both web and mobile apps 
 - 💞️ I’m looking to collaborate on new and existing projects 
-- 📫 How to reach me ...tel 0726037770
+- 📫 How to reach me ...tel 0790732484
 - 
 
 <!---
